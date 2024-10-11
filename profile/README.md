@@ -1,4 +1,4 @@
-# We. Are. Developers.
+# We. Are. *Developers*.
 in Brekke & Strand Akustikk AS
 <br>
 <br>
